@@ -1,0 +1,1 @@
+# shinkuwahara.com
